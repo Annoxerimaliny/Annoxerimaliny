@@ -1,6 +1,8 @@
 # RED
 ⛩️ ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ REDDIST
-[***NOTICE:***]
+
+-[***NOTICE:***]
+
 - I am a *system*, but please treat me as a singlet as I'm *uncomfortable* discussing about my disorder(s). This is just here to remind you to be patient with me if I don't remember certain details or other such things. This is something I cannot control so I advise you to be respectful.
 - I use acronyms/abbreviations very often, feel free to ask what they mean. I don't like typing a lot.
 - Interaction such as **booping, sitting next to me, etc**. are alright just as long as you aren't weird about it. 🌟
@@ -22,11 +24,11 @@
 - **🍷: UNDERTALE MULTIVERSE (UTMV)**
 - **🍷: UMAMUSUME: PRETTY DERBY**
 - **🍷: GACHIAKUTA**
-- 🍺:DELTARUNE
-- 🍺:APOTHECARY DIARIES
-- 🍺:BLOCKTALES
-- 🍺:REGRETEVATOR
-- 🍺:DECAYING WINTER
-- 🍺:COOKIE RUN: KINGDOM
-- 🍺:ZENLESS ZONE ZERO
-- 🍺:FRIEREN
+- 🍺: DELTARUNE
+- 🍺: APOTHECARY DIARIES
+- 🍺: BLOCKTALES
+- 🍺: REGRETEVATOR
+- 🍺: DECAYING WINTER
+- 🍺: COOKIE RUN: KINGDOM
+- 🍺: ZENLESS ZONE ZERO
+- 🍺: FRIEREN
