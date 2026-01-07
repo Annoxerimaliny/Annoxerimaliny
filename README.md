@@ -34,4 +34,4 @@
 - 🍺: COOKIE RUN: KINGDOM
 - 🍺: ZENLESS ZONE ZERO
 - 🍺: FRIEREN
-<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/ca92470a-74b9-415b-8048-814637a9db5a" />
+<img width="1920" height="1077" alt="image" src="https://github.com/user-attachments/assets/14d8ade6-2542-4ff5-b481-41f2deba9a2f" />
