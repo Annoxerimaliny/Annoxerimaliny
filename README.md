@@ -3,7 +3,7 @@
 
 -[***NOTICE:***]
 
-- I am a *system*, but please treat me as a singlet as I'm *uncomfortable* discussing about my disorder(s). This is just here to remind you to be patient with me if I don't remember certain details or other such things. This is something I cannot control so I advise you to be respectful.
+- Be patient with me because there are times where I can't respond quick all the time, I'm a very busy person so things might be easily overwhelming for me.
 - I use acronyms/abbreviations very often, feel free to ask what they mean. I don't like typing a lot.
 - Interaction such as **booping, sitting next to me, etc**. are alright just as long as you aren't weird about it. 🌟
 - I'm not a very active person, sorrgy... But you can totes check my twitter : )
