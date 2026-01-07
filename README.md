@@ -1,4 +1,5 @@
 # RED
+<img width="1920" height="1017" alt="image" src="https://github.com/user-attachments/assets/f8f2c7a8-6968-4542-b142-bb2631625910" />
 ⛩️ ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘ REDDIST
 
 -[***NOTICE:***]
@@ -32,3 +33,4 @@
 - 🍺: COOKIE RUN: KINGDOM
 - 🍺: ZENLESS ZONE ZERO
 - 🍺: FRIEREN
+<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/ca92470a-74b9-415b-8048-814637a9db5a" />
